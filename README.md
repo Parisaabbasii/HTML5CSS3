@@ -7,3 +7,6 @@ telegram: https://t.me/omidlmazaheri
 
 https://www.w3schools.com/html/default.asp
 
+09211788416
+
+omidlmazaheri@gmail.com
